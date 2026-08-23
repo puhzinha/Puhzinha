@@ -8,7 +8,7 @@ ________
 
  ▶︎ 🎧﹐ıllı pum. ﹒ ♡ʬ﹐any. ALL. # ᶻz﹕><﹐🔗 evil. @ :: ┆ass.﹒♡✦. ⊹ ˚ . Girl ass.: 🎱
 
- ▶︎ no.1 (pokémon) trainer red x fluttershy shipper on @ship-town
+ ▶︎ no.1 (pokémon) trainer red x fluttershy shipper on [@ship-town](https://github.com/ship-town)
 
 ______
 <img width="600" height="400" alt="Image" src="https://github.com/user-attachments/assets/d06bccd6-7729-477a-8175-5250fb1d75bf" />
